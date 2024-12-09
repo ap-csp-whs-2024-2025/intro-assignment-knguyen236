@@ -10,6 +10,8 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Something interesting about me is that I can solve a rubix cube in around a minute. 
+* Ask Mr. Vu anything: Would you reccomend taking Calculus 3 Multivaraible? 
+* List your sports and extracurriculars you participate in 
+Tennis 
+Badminton 
